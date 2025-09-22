@@ -34,7 +34,7 @@ We combine technical expertise with strategic thinking:
 ---
 
 ## 🌍 Connect with Us
-- [🛠 Upwork]([https://www.upwork.com/agencies/leetronix](https://www.upwork.com/agencies/1968219094249439032/))  
+- [🛠 Upwork](https://www.upwork.com/agencies/1968219094249439032/) 
 
 ---
 
